@@ -180,8 +180,8 @@ If you like this project:
 
 # 📬 Connect With Me
 
-* GitHub: https://github.com/yourusername
-* LinkedIn: https://linkedin.com/in/yourprofile
+* GitHub:https://github.com/Teju0216·GitHub
+* LinkedIn:https://www.linkedin.com/in/tejaswini-mule-b2951a358 | 
 
 ---
 
